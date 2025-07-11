@@ -1,1 +1,0 @@
-# anurak1.github.io
